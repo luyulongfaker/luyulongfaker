@@ -37,8 +37,11 @@
 ![](https://raw.githubusercontent.com/luyulongfaker/evidence/master/%E4%BC%81%E6%9F%A5%E6%9F%A5%26%E5%A4%A9%E7%9C%BC%E6%9F%A5/%E5%8D%A2%E9%A9%AD%E9%BE%99%E5%88%B6%E6%B0%B4%E6%9C%BA%E8%A2%AB%E6%B3%95%E9%99%A2%E5%8A%B3%E5%8A%A8%E4%BB%B2%E8%A3%81.png)
 
 **2018年6月**，**所谓“方太集团柏厨事业部前总经理”傅占杰加入驭龙电器**。其公关团队开始大肆宣传驭龙电器产品，造谣和国家电网达成合作，后公关团队删除新闻稿。
+
 ![](https://raw.githubusercontent.com/luyulongfaker/evidence/master/%E5%BE%AE%E4%BF%A1%E8%81%8A%E5%A4%A9%E8%AE%B0%E5%BD%95%E6%88%AA%E5%9B%BE/%E5%82%85%E5%8D%A0%E6%9D%B0/%E5%82%85%E5%8D%A0%E6%9D%B0-%E5%8F%91%E6%94%B9%E5%A7%94-%E5%9B%BD%E5%AE%B6%E7%94%B5%E7%BD%91-%E5%9C%B0%E4%BA%A7%E5%95%86-%E6%8B%89%E5%85%B3%E7%B3%BB%E5%AE%A3%E4%BC%A0.png)
+
 ![](https://raw.githubusercontent.com/luyulongfaker/evidence/master/%E5%BE%AE%E4%BF%A1%E8%81%8A%E5%A4%A9%E8%AE%B0%E5%BD%95%E6%88%AA%E5%9B%BE/%E6%9C%8B%E5%8F%8B%E5%9C%88%E8%99%9A%E5%81%87%E5%AE%A3%E4%BC%A0/%E8%99%9A%E5%81%87%E5%AE%A3%E4%BC%A0.png)
+
 >据相关人士透露，傅占杰在驭龙电器这段时间和几个商人架空了卢。**卢本人并不参与公司实际管理**，而是整天花天酒地、网络造势。**原先驭龙电器的公关团队在2019年之前已经全部离职。**
 
 **2019年初 **，传闻驭龙航天结束，天眼查等多个软件可以看到劳动仲裁的案件记录。
