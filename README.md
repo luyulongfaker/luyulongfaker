@@ -15,3 +15,5 @@
 - **Chapter 7 总结**
 - **Chapter 8 网友问题回复**
 
+Don't paly the "lawyer" card, it's not going to work on me.
+
