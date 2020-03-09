@@ -15,6 +15,7 @@
 - **Chapter 7 总结**
 - **Chapter 8 网友问题回复**
 - **[打油诗一首](https://github.com/luyulongfaker/luyulongfaker/blob/master/打油诗一首.md "打油诗一首")**
+- **[附录1 电焰灶氮氧化物严重超标的理论分析](https://github.com/luyulongfaker/luyulongfaker/blob/master/%E7%94%B5%E7%84%B0%E7%81%B6%E6%B0%AE%E6%B0%A7%E5%8C%96%E7%89%A9%E8%B6%85%E6%A0%87%E5%88%86%E6%9E%90.md "附录1 电焰灶氮氧化物严重超标的理论分析")**
 
 
 
