@@ -59,6 +59,7 @@
 #### 氮氧化物排放不达标
 
 具体理论分析请看这一章节[**电焰灶氮氧化物超标分析**。](https://github.com/luyulongfaker/luyulongfaker/blob/master/%E7%94%B5%E7%84%B0%E7%81%B6%E6%B0%AE%E6%B0%A7%E5%8C%96%E7%89%A9%E8%B6%85%E6%A0%87%E5%88%86%E6%9E%90.md "电焰灶氮氧化物超标分析")
+
 结论是，**驭龙电焰灶氮氧化物排放超标国家标准8倍**以上。
 
 #### 电焰灶漏电问题
@@ -82,6 +83,9 @@
 ## 2.5 参考文献
 
 [[1]吕玉明. 等离子体灶的设计与性能研究[D].华北理工大学,2018.](https://github.com/luyulongfaker/evidence/blob/master/%E7%94%B5%E7%84%B0%E7%81%B6%E7%9B%B8%E5%85%B3%E5%AD%A6%E6%9C%AF%E8%AE%BA%E6%96%87%E5%92%8C%E4%B8%93%E5%88%A9%E6%96%87%E4%BB%B6/%E7%AD%89%E7%A6%BB%E5%AD%90%E4%BD%93%E7%81%B6%E7%9A%84%E8%AE%BE%E8%AE%A1%E4%B8%8E%E6%80%A7%E8%83%BD%E7%A0%94%E7%A9%B6_%E5%90%95%E7%8E%89%E6%98%8E.pdf "[1]吕玉明. 等离子体灶的设计与性能研究[D].华北理工大学,2018.")
+
 [[2]傅占杰新浪博客.](http://blog.sina.com.cn/jeakifu "[2]傅占杰新浪博客.")
+
 [[3]驭龙公司河北省招商座谈会.2018.](http://www.chinahightech.com/html/Info/xinxi/2018/1017/494443.html "[3]驭龙公司河北省招商座谈会.2018.")
+
 [[4]试电笔-百度百科.](https://baike.baidu.com/item/%E8%AF%95%E7%94%B5%E7%AC%94/7485512 "[4]试电笔-百度百科.")
