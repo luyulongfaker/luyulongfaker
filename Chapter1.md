@@ -75,6 +75,10 @@
 2.  抖音上卢驭龙提到了2017年提前招商 但既然意识到了问题 2018年 到2019年又不断要求经销商加盟 交开店费 这里他自己又无法解释了  这是他们的惯用招数 主动释放风险 让人感觉很有实力很真诚 其实是**虚张声势**。
 3. 经销商提出质疑的时候 他们会让经销商退款 但经销商真打算退的时候 又会劝他们。
 
+![](https://raw.githubusercontent.com/luyulongfaker/evidence/master/%E5%BE%AE%E4%BF%A1%E8%81%8A%E5%A4%A9%E8%AE%B0%E5%BD%95%E6%88%AA%E5%9B%BE/%E7%BB%8F%E9%94%80%E5%95%86%E5%92%8C%E9%A9%AD%E9%BE%99%E5%91%98%E5%B7%A5/%E4%BA%8C%E7%BA%A7%E7%94%B3%E8%AF%B7%E9%80%80%E9%92%B1%E5%90%8E%E6%80%81%E5%BA%A6%E5%BC%BA%E7%A1%AC1.jpg)
+
+![](https://raw.githubusercontent.com/luyulongfaker/evidence/master/%E5%BE%AE%E4%BF%A1%E8%81%8A%E5%A4%A9%E8%AE%B0%E5%BD%95%E6%88%AA%E5%9B%BE/%E7%BB%8F%E9%94%80%E5%95%86%E5%92%8C%E9%A9%AD%E9%BE%99%E5%91%98%E5%B7%A5/%E4%BA%8C%E7%BA%A7%E7%94%B3%E8%AF%B7%E9%80%80%E9%92%B1%E5%90%8E%E6%80%81%E5%BA%A6%E5%BC%BA%E7%A1%AC2.jpg)
+
 ## 总结
 
 1. **电焰灶一没科技含量，二没市场。被傅占杰们当成了割韭菜的镰刀，傅占杰和卢等人压榨一级经销商，一级经销商卖不出去货被逼无奈，去忽悠二级经销商。三年了！到现在产品都没流入市场！！！**
