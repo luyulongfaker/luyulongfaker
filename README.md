@@ -7,7 +7,7 @@
 ------------
 
 - **[Chapter 1 卢驭龙圈钱简史](https://github.com/luyulongfaker/luyulongfaker/blob/master/Chapter1.md "Chapter 1 卢驭龙圈钱简史")**
-- **[Chapter 2 电焰灶骗局](https://github.com/luyulongfaker/luyulongfaker/blob/master/Chapter2.md "Chapter 2 电焰灶骗局")**
+- **[Chapter 2 电焰灶骗局](https://github.com/luyulongfaker/luyulongfaker/blob/master/Chapter2.md "Chapter 2 电焰灶骗局")** 
 - **Chapter 3 驭龙航天**
 - **Chapter 4 空气制水机**
 - **Chapter 5 虚假人设**
