@@ -206,12 +206,15 @@
 **结论1**：**卢驭龙宣传视频标注功率是2700W，但是实际计算功率为4430W，效率为60.9%，按照官方宣传热效率74%计算，最后用4430W电能，2025W用来炒菜。**
 
 **图2.3.6-1**
+
 ![图2.3.6-1](https://raw.githubusercontent.com/luyulongfaker/evidence/master/%E5%85%B6%E4%BB%96%E8%99%9A%E5%81%87%E5%A4%B8%E5%A4%A7%E5%AE%A3%E4%BC%A0/%E7%94%B5%E7%84%B0%E7%81%B6%E5%8A%9F%E7%8E%87%E9%80%A0%E5%81%87/%E7%94%B5%E7%84%B0%E7%81%B6%E5%8A%9F%E7%8E%87%E9%80%A0%E5%81%871.jpg "图2.3.6-1")
 
 **图2.3.6-2**
+
 ![图2.3.6-2](https://raw.githubusercontent.com/luyulongfaker/evidence/master/%E5%85%B6%E4%BB%96%E8%99%9A%E5%81%87%E5%A4%B8%E5%A4%A7%E5%AE%A3%E4%BC%A0/%E7%94%B5%E7%84%B0%E7%81%B6%E5%8A%9F%E7%8E%87%E9%80%A0%E5%81%87/%E7%94%B5%E7%84%B0%E7%81%B6%E5%8A%9F%E7%8E%87%E9%80%A0%E5%81%872.jpg "图2.3.6-2")
 
 **图2.3.6-3**
+
 ![图2.3.6-3](https://raw.githubusercontent.com/luyulongfaker/evidence/master/%E5%85%B6%E4%BB%96%E8%99%9A%E5%81%87%E5%A4%B8%E5%A4%A7%E5%AE%A3%E4%BC%A0/%E7%94%B5%E7%84%B0%E7%81%B6%E5%8A%9F%E7%8E%87%E9%80%A0%E5%81%87/%E7%94%B5%E7%84%B0%E7%81%B6%E5%8A%9F%E7%8E%87%E9%80%A0%E5%81%873.jpg "图2.3.6-3")
 
 #### 实验中电费质疑
@@ -224,9 +227,11 @@
 **结论2**：卢驭龙在实验中有意对电费标准造假。
 
 **图2.3.6-4**
+
 ![](https://raw.githubusercontent.com/luyulongfaker/evidence/master/%E5%85%B6%E4%BB%96%E8%99%9A%E5%81%87%E5%A4%B8%E5%A4%A7%E5%AE%A3%E4%BC%A0/%E7%94%B5%E7%84%B0%E7%81%B6%E5%8A%9F%E7%8E%87%E9%80%A0%E5%81%87/%E7%94%B5%E7%84%B0%E7%81%B6%E5%8A%9F%E7%8E%87%E9%80%A0%E5%81%874.jpg)
 
 **图2.3.6-5**
+
 ![](https://raw.githubusercontent.com/luyulongfaker/evidence/master/%E5%85%B6%E4%BB%96%E8%99%9A%E5%81%87%E5%A4%B8%E5%A4%A7%E5%AE%A3%E4%BC%A0/%E7%94%B5%E7%84%B0%E7%81%B6%E5%8A%9F%E7%8E%87%E9%80%A0%E5%81%87/%E7%94%B5%E7%84%B0%E7%81%B6%E5%8A%9F%E7%8E%87%E9%80%A0%E5%81%875.jpg)
 
 
