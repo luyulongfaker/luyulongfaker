@@ -51,6 +51,12 @@
 **2019年初**，传闻驭龙航天结束，天眼查等多个软件可以看到劳动仲裁的案件记录。
 ![](https://raw.githubusercontent.com/luyulongfaker/evidence/master/%E4%BC%81%E6%9F%A5%E6%9F%A5%26%E5%A4%A9%E7%9C%BC%E6%9F%A5/%E9%A9%AD%E9%BE%99%E8%88%AA%E5%A4%A9%E8%A2%AB%E6%B3%95%E9%99%A2%E5%8A%B3%E5%8A%A8%E4%BB%B2%E8%A3%81.png)
 
+**2019年2月**，正当傅占杰等人如火如荼地割韭菜时，卢驭龙却**沉溺于声色犬马**之中，**过着花天酒地的生活**。（卢驭龙后来还在抖音说展开了什么惊心动魄的权利斗争）
+
+![](https://raw.githubusercontent.com/luyulongfaker/evidence/master/QQ%E7%A9%BA%E9%97%B4/%E7%B3%9C%E7%83%82%E7%94%9F%E6%B4%BB1.png)
+
+![](https://raw.githubusercontent.com/luyulongfaker/evidence/master/QQ%E7%A9%BA%E9%97%B4/%E7%B3%9C%E7%83%82%E7%94%9F%E6%B4%BB2.png)
+
 **2019年3月**，经销商们反映驭龙电器提供的**展架质量很差价格很高，与市场正常价格差异明显，据说高达两倍。**结果傅占杰和驭龙的营销群招商人员大骂经销商是**“垃圾”、“太贪婪”、“就想要骨头吃”**。经销商地位低下，在驭龙电器高层眼里和<u>**讨要骨头的狗**</u>没任何区别。
 
 [傅占杰等人辱骂经销商的截图](https://github.com/luyulongfaker/evidence/tree/master/%E5%BE%AE%E4%BF%A1%E8%81%8A%E5%A4%A9%E8%AE%B0%E5%BD%95%E6%88%AA%E5%9B%BE/%E5%82%85%E5%8D%A0%E6%9D%B0 "傅占杰等人辱骂经销商的截图")
@@ -63,7 +69,9 @@
 
 ![](https://raw.githubusercontent.com/luyulongfaker/evidence/master/%E5%BE%AE%E4%BF%A1%E8%81%8A%E5%A4%A9%E8%AE%B0%E5%BD%95%E6%88%AA%E5%9B%BE/%E5%82%85%E5%8D%A0%E6%9D%B0/%E5%82%85%E5%8D%A0%E6%9D%B0%E5%92%8C%E5%8D%A2%E5%A6%88%E5%A6%88%EF%BC%88%E5%86%B7%E6%B4%81%EF%BC%89%E5%86%B2%E7%AA%81.png)
 
-![](https://raw.githubusercontent.com/luyulongfaker/evidence/master/%E5%BE%AE%E4%BF%A1%E8%81%8A%E5%A4%A9%E8%AE%B0%E5%BD%95%E6%88%AA%E5%9B%BE/%E5%82%85%E5%8D%A0%E6%9D%B0/%E5%82%85%E5%8D%A0%E6%9D%B0%E6%89%BF%E8%AE%A4%E4%B9%8B%E5%89%8D%E8%B4%9F%E5%80%BA8%E5%8D%83%E4%B8%87%E4%BA%8B%E5%AE%9E.jpg)
+**2019年6月，驭龙市场经理黄力在微信承认，驭龙电焰灶“早晚都是个死”、“电商和终端都没救”、“我也很快要下车（跑了）”**
+
+![](https://raw.githubusercontent.com/luyulongfaker/evidence/master/%E5%BE%AE%E4%BF%A1%E8%81%8A%E5%A4%A9%E8%AE%B0%E5%BD%95%E6%88%AA%E5%9B%BE/%E7%BB%8F%E9%94%80%E5%95%86%E5%92%8C%E9%A9%AD%E9%BE%99%E5%91%98%E5%B7%A5/%E9%A9%AD%E9%BE%99%E7%BB%8F%E7%90%86%E9%BB%84%E5%8A%9B%E6%83%B3%E5%BC%80%E6%BA%9C2.png)
 
 **2019年8月**，卢驭龙等人对外宣传电焰灶获得3C认证。**但实际上功率等参数对不上，不符合3C认证规定，涉嫌虚假宣传和欺诈消费者。**
 
